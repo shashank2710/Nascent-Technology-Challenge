@@ -1,1 +1,0 @@
-# Nascent-Technology-Challenge
